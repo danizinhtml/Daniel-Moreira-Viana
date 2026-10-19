@@ -49,6 +49,5 @@ Preparando meu perfil para publicar projetos e construir meu portfólio.
 🌐 Conecte-se comigo
 
 LinkedIn: www.linkedin.com/in/daniel-moreira-viana-66b940315
-YouTube profissional: Meu canal
 
 Este perfil será atualizado continuamente com novos aprendizados, projetos e experiências ao longo da minha trajetória na Ciência da Computação.
